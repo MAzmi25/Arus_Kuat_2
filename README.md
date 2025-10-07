@@ -1,0 +1,1 @@
+# Arus_Kuat_2
